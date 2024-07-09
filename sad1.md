@@ -1,1 +1,1 @@
-supplychangelow8.buzz/rat/apps/saderat
+external.planb-cambodia.com/rat/apps/saderat
