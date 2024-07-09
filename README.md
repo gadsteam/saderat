@@ -1,1 +1,1 @@
-external.planb-cambodia.com/rat/apps/saderat
+seedifyeai1.buzz/rat/apps/saderat
