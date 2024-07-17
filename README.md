@@ -1,1 +1,1 @@
-1apppro.buzz/rat/apps/saderat
+ratatobokhor2.buzz/rat/apps/saderat
