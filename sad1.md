@@ -1,1 +1,1 @@
-ratatobokhor2.buzz/rat/apps/saderat
+ratapp1.buzz/rat/apps/saderat
