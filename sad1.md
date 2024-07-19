@@ -1,1 +1,1 @@
-ratapp1.buzz/rat/apps/saderat
+rating2.buzz/rat/apps/saderat
