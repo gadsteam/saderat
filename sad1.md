@@ -1,1 +1,1 @@
-rating2.buzz/rat/apps/saderat
+ratong3.buzz/rat/apps/saderat
