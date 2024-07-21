@@ -1,1 +1,1 @@
-0rockmal.buzz/rat/apps/saderat
+40republic.buzz/rat/apps/saderat
