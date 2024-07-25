@@ -1,1 +1,1 @@
-42recognition.buzz/rat/apps/saderat
+100residence.buzz/rat/apps/saderat
