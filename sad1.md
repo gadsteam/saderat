@@ -1,1 +1,1 @@
-100residence.buzz/rat/apps/saderat
+rungmile1.buzz/rat/apps/saderat
