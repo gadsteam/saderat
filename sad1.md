@@ -1,1 +1,1 @@
-raremail2.buzz/rat/apps/saderat
+ringmove3.buzz/rat/apps/saderat
