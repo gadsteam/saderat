@@ -1,1 +1,1 @@
-ringmove3.buzz/rat/apps/saderat
+fjardarbon.com/rat/apps/saderat
